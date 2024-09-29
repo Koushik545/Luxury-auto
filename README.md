@@ -16,3 +16,5 @@ Compatible with all major FiveM frameworks. Get ready to drive sales and rolepla
 PREVIEW - https://www.youtube.com/live/2S6g7NdA7Zs?si=sV-aqbpHcvrBuG-J
 
 DISCORD - https://discord.gg/nvB8ZQ8K
+
+tebex - https://ls-customs-webshop.tebex.io/package/6479333
